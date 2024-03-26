@@ -7,4 +7,4 @@
 
 👉 Check out the details on my profile and let's connect to discuss! 🤝
 
-hashtag#TumourDetection hashtag#DataVisualization hashtag#HealthTech hashtag#AI hashtag#MachineLearning hashtag#MedicalResearch hashtag#DataAnalysis hashtag#LinkedIn hashtag#TechProject hashtag#Innovation
+#TumourDetection #DataVisualization #HealthTech #AI #MachineLearning #MedicalResearch #DataAnalysis #LinkedIn #TechProject #Innovation
